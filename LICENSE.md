@@ -1,10 +1,10 @@
-Ultimato Windscribe Plugin | interruptor de desligamento + servidores de alta velocidade é o melhor Windscribe plugin com interruptor de desligamento e servidores de alta
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/windscribe-zb00/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
