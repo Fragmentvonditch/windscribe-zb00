@@ -1,10 +1,10 @@
-نهائي Windscribe إضافة | مفتاح الإيقاف + خوادم عالية السرعة هو أفضل Windscribe إضافة مع مفتاح الإيقاف و خوادم عالية السرعة. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/windscribe-zb00/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
