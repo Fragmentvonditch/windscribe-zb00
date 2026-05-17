@@ -1,10 +1,10 @@
-Ultimate Windscribe Plugin | kill switch + high-speed servers is the best Windscribe plugin with kill switch and high-speed servers. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/windscribe-zb00/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
